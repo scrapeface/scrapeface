@@ -4,6 +4,6 @@
   <br>deimos/etc . he/him . 15 . intp-t . esp/eng!</br>
   <br><a href="https://madnesscombat.fandom.com/wiki/Deimos">deimos</a> fictkin. i enjoy company!
   all ints are okay ^_^</br>
-  <br>no dni! i hide freely, just don't be weird | <a href="https://sntry.cc/-deimos">additional info</a></br>
+  <br>no dni! i hide freely, just don't be weird | <a href="https://rentry.co/packofcigarettes">additional info</a></br>
 </p>
 <hr>
