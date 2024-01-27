@@ -1,9 +1,7 @@
 <hr>
 <p align="center">
-  <br><img src="https://media.discordapp.net/attachments/998826438411161610/1199382968670638122/20240123_085841.png?ex=65c2576f&is=65afe26f&hm=ecc41e361db4dcb4469fb1a99b7ffbdb346766d02792d36355c9026ab8755a67&=&format=webp&quality=lossless&width=528&height=480"></br>
-  <br>deimos/etc . he/him . 15 . intp-t . esp/eng!</br>
-  <br><a href="https://madnesscombat.fandom.com/wiki/Deimos">deimos</a> fictkin. i enjoy company!
-  all ints are okay ^_^</br>
-  <br>no dni! i hide freely, just don't be weird | <a href="https://rentry.co/packofcigarettes">additional info</a></br>
+  <br><img src="https://media.discordapp.net/attachments/1199413039359856770/1200820519977627688/Untitled61_20240127081109.png?ex=65c79242&is=65b51d42&hm=ad0204f76aa47da3c3d120328d71012a5377189b91d74a3fef040a636e616400&=&format=webp&quality=lossless&width=480&height=480"></br>
+  <br>☆ deimos (<a href="https://en.pronouns.page/@arstotzka">+</a>) he/him . 15</br> <a href="https://madnesscombat.fandom.com/wiki/Deimos">deimos</a> fictkin. all ints ok!
+  <br><a href="https://rentry.co/packofcigarettes">more stuff</a> + <a href="https://hankwimbleton.123guestbook.com/hankwimbleton">guestbook</a> :P
 </p>
 <hr>
